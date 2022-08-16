@@ -1,1 +1,0 @@
-# practice_hospital_ldy
